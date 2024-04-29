@@ -24,7 +24,7 @@
 
 ###
 
-[GMAIL](mailto:utku0iletisim@gmail.com)
+[GMAIL](mailto:utkan@utkan.net)
 
 
 ###
